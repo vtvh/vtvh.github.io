@@ -6,4 +6,4 @@
 - 📫 How to reach me: Telegram: https://t.me/vtvh1 | Messenger: https://m.me/vtvh1
 - ⚡ Fun fact: Shell tweaker, Meditator.
 
-- ![avatar](https://avatars3.githubusercontent.com/u/44681077)
+- ![avatar](https://avatars3.githubusercontent.com/u/44681077?size=420)
