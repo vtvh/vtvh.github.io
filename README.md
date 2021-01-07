@@ -5,8 +5,8 @@
 - 👯 I’m looking to collaborate on Designing Products.
 - 📫 How to reach me:
   - ✉ Mail: [vu.tran.viet.hai@gmail.com](mailto:vu.tran.viet.hai@gmail.com)
-  - 📞 Telegram: [https://t.me/vtvh1](https://t.me/vtvh1)
-  - 🤙 Messenger: [https://m.me/vtvh1](https://m.me/vtvh1)
+  - 📞 Telegram: [https://t.me/haivtv](https://t.me/haivtv)
+  - 🤙 Messenger: [https://m.me/haivtv](https://m.me/haivtv)
   - ☎ Whatsapp: [https://wa.me/84772098099](https://wa.me/84772098099)
 - ⚡ Fun fact: Shell tweaker, Meditator.
 
